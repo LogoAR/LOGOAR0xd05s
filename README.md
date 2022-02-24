@@ -1,1 +1,0 @@
-# LOGOAR0xd05s
